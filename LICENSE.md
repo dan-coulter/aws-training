@@ -1,1 +1,2 @@
-All rights reserved
+All rights reserved  
+ⒸDan Coulter dan@dancoulter.com
